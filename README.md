@@ -3,5 +3,7 @@ Today, getting a personal loan still feels slow and complicated for most custome
 
 https://youtu.be/z2pMCMNqB8E?si=GYfKv8Bc3QBXlWRu
 
-**<img width="1119" height="530" alt="Screenshot 2025-12-16 141041" src="https://github.com/user-attachments/assets/1b0600eb-6920-4be0-8a78-f0b1b183a04d" />
-**
+<img width="900" height="700" alt="Screenshot 2025-12-16 140649" src="https://github.com/user-attachments/assets/5c0d2ae2-4a11-4caa-ab4b-2bcf157966bb" />
+<img width="1121" height="755" alt="Screenshot 2025-12-16 140814" src="https://github.com/user-attachments/assets/fd8126e0-bc73-40c4-ab08-0161a2b3cf7a" />
+
+
